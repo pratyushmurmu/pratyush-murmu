@@ -5,6 +5,7 @@ I'm a BTech student specializing in Computer Science Engineering, currently ...
 ---
 
 🎨 When I'm not coding, you'll find me sketching with my trusty pencil 🎨. I believe creativity in art and technology go hand-in-hand!
+Love to collaborate with others to learn. You can connect with me in LinkedIn and Instagram.
 
 ---
 
